@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @wantedev
+- 👀 I’m interested in Music, Developing and Making Friends
+- 🌱 I’m currently learning HTML
+- 💞️ I’m looking to collaborate on any projects
+- 📫 How to reach me (discord) wanted#1000
